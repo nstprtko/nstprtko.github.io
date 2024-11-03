@@ -1,1 +1,0 @@
-# nstprtko.github.io
